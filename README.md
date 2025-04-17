@@ -1,1 +1,0 @@
-# makayakayoto.github.io
